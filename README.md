@@ -1,3 +1,2 @@
 # Домашнее задание по курсу Технологии Интернет
-![image](https://user-images.githubusercontent.com/60492990/212501688-e9cceb19-1285-402c-8e5e-ea0aa7da1ffc.png)
-![image](https://user-images.githubusercontent.com/60492990/212501697-45ae1913-8bc0-456b-aca0-424578d877b5.png)
+![image](https://sun1.userapi.com/sun1-25/s/v1/ig2/kVD3c3vtPXf07gj7kDj7EuINdYOfjVanGG7nHL3XcvCP6hvZUzW1mNjHz6DOU8DHJyo7qXc5B2dfLsSSPblkewJz.jpg?size=1232x935&quality=96&type=album)
